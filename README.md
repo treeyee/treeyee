@@ -14,5 +14,5 @@
 
   <br><img src="https://i.postimg.cc/MX2jwvgT/Tumblr-l-956165495928222.gif">
   <br><br><p>${\textsf{\color{#B9E49F}ask for other socials !!}}$</p>
-  </p> <br><br><a href="https://sweet-leafs.straw.page/">sp</a> 　     　     ✦　  <a href="">ata</a>   　     　     ✦　  <a href="https://github.com/mentalcrime">bf's</a>   　     　   <img src="https://files.catbox.moe/kxwcyv.gif"> 
+  </p> <br><br><a href="https://sweet-leafs.straw.page/">sp</a> 　     　     ✦　  <a href="https://blooming-spring.atabook.org/">ata</a>   　     　     ✦　  <a href="https://github.com/mentalcrime">bf's</a>   　     　   <img src="https://files.catbox.moe/kxwcyv.gif"> 
   </div>
