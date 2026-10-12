@@ -15,7 +15,7 @@
       <p> i usually dont aproach first ${\textsf{\color{#B9E49F}and i may be awkward}}$ but im a yapper once i warm up to ya!</p>
     </details></p>
    <br><br>   𓈃𓈒ּ    　   <a href="https://blooming-spring.atabook.org/">ata</a>   　    ⁰ .  
-   <br> ೃ ゜   <a href="https://sweet-leafs.straw.page">sp</a>   　      𓈒  ۟ 
+   <br> ೃ ゜   <a href="https://non-coniferous.straw.page">sp</a>   　      𓈒  ۟ 
    <br><p>   　    　          　 ˚ִִ 𓐇      　         <a href="https://pronouns.cc/@tree">prns</a>   　      ㆍ˳݂  　  <img src="https://files.catbox.moe/kxwcyv.gif"> </p>
       <br>
       </td>
