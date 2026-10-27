@@ -11,6 +11,7 @@
       <br><p> preferably ${\textsf{\color{#B9E49F}call me tree}}$, whisper2int ${\textsf{\color{#FFC9D7}(˶ᵔ ᵕ ᵔ˶)}}$</p>
       <p> ${\textsf{\color{#B9E49F}c + h freely}}$, ask if we dont know each other!!</p>
       <p> ${\textsf{\color{#FFC9D7}basic}}$ dni criteria, ${\textsf{\color{#B9E49F}i block freely}}$ if i feel like its needed, this being said, ${\textsf{\color{#FFC9D7}do NOT invlove me}}$ in drama or any situation that i have ${\textsf{\color{#B9E49F}nothing to do with}}$</p>
+    <p> if you ${\textsf{\color{#FFC9D7}normalize mockery, harassment and constant heated discourse}}$ i would appreciate if you ${\textsf{\color{#B9E49F}refrain from interacting with me}}$ please</p>
       <p> ${\textsf{\color{#FFC9D7}mostly offtab, with my bf and/or friends}}$, either at osc or wandering somewhere</p>
       <p> i usually dont aproach first ${\textsf{\color{#B9E49F}and i may be awkward}}$ but im a yapper once i warm up to ya!</p>
     </details></p>
